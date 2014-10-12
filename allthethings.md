@@ -10,7 +10,7 @@ Karen Leech | Drupal Site Builder & tinkerer | hello@karenleech.co.uk
 
 #### Drupal Developer  
 **The Children's Society**  
-July 2013 - Present (4 months) 
+July 2013 - October 2013 (4 months) 
 
 #### Director  
 **Kae76 LTD**  
